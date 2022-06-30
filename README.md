@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @neymar123
-- 👀 I’m interested in ...em comprar um ps4
+- 👀 I’m interested in ...em aprender 
 - 🌱 I’m currently learning ...jogo de tiroo
 - 💞️ I’m looking to collaborate on ...quero colaborar com os peack blinders
 - 📫 How to reach me ...suca bler
